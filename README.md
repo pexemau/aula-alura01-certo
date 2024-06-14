@@ -1,5 +1,2 @@
 # aula-alura01-certo
-vapo nelas
-dale que dale 
-teste 
-etset 
+vapo nelas hahaha 
